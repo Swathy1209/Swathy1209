@@ -10,7 +10,7 @@
 
 🚀 My key interests include healthcare research using data science, AI-powered learning companions, and low-code development platforms.
 
-📫 You can reach me at [swathiga22@gmail.com/Linkedln:swathigasundararajam].
+📫 You can reach me at [swathiga22@gmail.com/Linkedln:swathigasundararajan].
 
 😄 Pronouns: She/Her
 
